@@ -1,0 +1,1 @@
+👨‍🦱️🏴󠁧󠁢󠁷󠁬󠁳󠁿️🇮🇪️🇺🇸️2️⃣️0️⃣️0️⃣️1️⃣️📂️💼️2️⃣️0️⃣️2️⃣️8️⃣️ The official home repository for the Y2028 branch of the SeanPatrickMyrick Travel Log segment of the Extras section of the Sean Patrick Myrick Life Archive project. 
